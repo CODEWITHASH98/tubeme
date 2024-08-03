@@ -1,0 +1,1 @@
+a fun project for uploading and sharing your daily media 
